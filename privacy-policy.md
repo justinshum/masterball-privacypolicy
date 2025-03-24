@@ -1,6 +1,6 @@
 Privacy Policy
 Effective Date: 3/22/25
-Last Updated: 3/22/25
+Last Updated: 3/24/25
 
 1. Introduction
    
